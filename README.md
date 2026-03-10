@@ -1,0 +1,1 @@
+# trendoora-theme
